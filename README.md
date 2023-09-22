@@ -1,6 +1,6 @@
 # Hello I'am Jako
 
-![Alt Text](https://thumbs.gfycat.com/DeafeningAmbitiousIchthyostega-size_restricted.gif)
+![Alt Text](https://38.media.tumblr.com/ba7c260ef9416de82bf39fc904e983b4/tumblr_n9zrj52cBP1s8jr81o2_500.gif)
 
 ### 👨‍💻 Programming and markup languages
 
